@@ -1,1 +1,1 @@
-diamond hands will prevail 💎🚀
+diamond hands will prevail
