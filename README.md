@@ -1,1 +1,1 @@
-# DMND
+diamond hands will prevail 💎🚀
