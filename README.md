@@ -1,1 +1,1 @@
-diamond hands will prevail
+Diamond hands will prevail
